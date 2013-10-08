@@ -1,0 +1,3 @@
+# LOS GUERREROS DEL PRESENTE
+
+Habia una vez un grupo de 6 amigos guardianes de la tierra...
